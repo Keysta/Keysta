@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Keysta
-- 👀 I’m interested in space, furthering my career, and my beautiful girlfriend!
+- 👀 I’m interested in space, furthering my career, and playing games with friends!
 - 🌱 I’m currently learning the basics of computer science and coding, i'm brand new!
 - 💞️ I’m looking to learn as much as possible, and understand this community!
 - 📫 you can reach me by my email, mason2236@outlook.com!
